@@ -11,8 +11,9 @@
 
 📬 Get in Touch :
     If you have any questions, suggestions, or just want to chat about tech, feel free to reach out to me:
-      - LinkedIn: Shruti Dongre
-      - Email: shrutidongre1203@gmail.com
+    
+    - LinkedIn: Shruti Dongre
+    - Email: shrutidongre1203@gmail.com
 
 
 <!---
