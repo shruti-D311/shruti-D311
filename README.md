@@ -11,7 +11,7 @@
 
 📬 Get in Touch :
     If you have any questions, suggestions, or just want to chat about tech, feel free to reach out to me: 
-    Email- shrutidongre1203@gmail.com
+    Email- shrutid00311@gmail.com
 
 
 <!---
